@@ -1,4 +1,4 @@
-# 美國 Swanson NMN + 紅菜頭粉, 抗衰老 細胞逆轉 細胞再生 修復DNA (30粒) [香港代購](https://haircores.com/）
+# 美國 Swanson NMN + 紅菜頭粉, 抗衰老 細胞逆轉 細胞再生 修復DNA (30粒) [香港代購](https://haircores.com/)
 
 網站：https://haircores.com/
 
